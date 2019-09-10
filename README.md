@@ -8,4 +8,5 @@ Gianmauro
 ---
 
 Manca a molti di noi un amico ed un brillantissimo ricercatore. L'immangine che ho dite è quella con la tua tazza 
-in mano davanti alla macchina del caffè, mentre discutiamo di tante cose....
+in mano davanti alla macchina del caffè, con il volto sorridente mentre discutiamo di tante cose....
+M
