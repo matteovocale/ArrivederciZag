@@ -6,3 +6,6 @@ Un abbraccio Zag
 
 Gianmauro
 ---
+
+Manca a molti di noi un amico ed un brillantissimo ricercatore. L'immangine che ho dite è quella con la tua tazza 
+in mano davanti alla macchina del caffè, mentre discutiamo di tante cose....
